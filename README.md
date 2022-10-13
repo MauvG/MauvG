@@ -4,4 +4,4 @@ I am currently a second year student in Trinity College (TCD) pursuing a bachelo
 
 I have a strong interest in computer science and I'm eager to learn more. I want to take on fresh tasks and work through difficult issues. I enjoy working in teams and I'm constantly seeking for intriguing chances to put my abilities to the test.
 
-LinkedIn - https://www.linkedin.com/in/muavia-ghazi-29699722b/
+LinkedIn - https://www.linkedin.com/in/muavia-ghazi/
