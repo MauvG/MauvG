@@ -1,3 +1,5 @@
+![helloWorld](https://github.com/MauvG/MauvG/assets/98029535/00626a70-eb92-4944-9994-0222bdc11543)
+
 Hi, my name is Muavia Ghazi.
 
 I am a third year student in Trinity College (TCD) pursuing a bachelor's degree in Computer Science and ideally, a master's degree after that.
